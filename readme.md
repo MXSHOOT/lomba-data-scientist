@@ -1,1 +1,1 @@
-# Latihan lomba
+# Latihan lomba duax
